@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SZRHH
-- 👀 I’m interested in hackin
+- 👀 I’m interested in hacking
 - 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on hacking
 - 📫 How to reach me by contacting
